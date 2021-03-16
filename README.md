@@ -1,0 +1,2 @@
+# kelasoopdehasen
+tugas pertama
